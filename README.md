@@ -7,6 +7,9 @@ Diyas are the heart of major Indian festivals, most notably Diwali, the "Festiva
 
 Tired of oily Diyas? In this tutorial, I will show you guys how I created these super simple 3D printed Diwali Diyas which are safe, non greasy, reusable, easy to make and will last forever.
 
+
 Video: https://youtu.be/zoYjwL6cUcs
+
 Blog 1: https://diy-projects4u.blogspot.com/2025/11/3D-Printed-Diyas.html
+
 Blog 2: https://diyfactory007.blogspot.com/2025/11/3D-Printed-Diyas.html
